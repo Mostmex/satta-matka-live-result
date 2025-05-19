@@ -31,7 +31,7 @@ Welcome to the official GitHub page for [Satta Matka DP Boss](https://sattamatka
 
 ---
 
-### 🔗 Extra Access:
+### 🔗 Quick Access:
 
 - 👉 Visit → [Satta Matka](https://sattamatkadpboss.co/)
 - 👉 Bookmark us for daily updates!  
