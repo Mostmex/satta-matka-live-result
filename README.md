@@ -20,9 +20,8 @@ Welcome to the official GitHub page for **Satta Matka DP Boss** – your trusted
 
 ---
 
-## 💡 Popular Matka Games We Cover: - [Fast Matka Results](https://sattamatkadpboss.co/)  
-                                    - [Matka Result Chart](https://sattamatkadpboss.co/)
-
+## 💡 Popular Matka Games We Cover: 
+- [Fast Matka Results](https://sattamatkadpboss.co/)  
 
 - Kalyan Matka
 - Milan Day/Night
@@ -38,7 +37,7 @@ Welcome to the official GitHub page for **Satta Matka DP Boss** – your trusted
 👉 Visit Our →- [Kalyan Matka Result](https://sattamatkadpboss.co/)
 👉 Bookmark us for daily updates!  
 👉 Share with Matka Lovers 🎯
-
+- [Matka Result Chart](https://sattamatkadpboss.co/)
 ---
 
 ## 📌 Tags:
