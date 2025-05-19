@@ -1,6 +1,6 @@
 ## 🎯 Satta Matka Live Result | DPBoss Online
 
-Welcome to the official GitHub page for [Satta Matka DP Boss](https://sattamatkadpboss.co/) – your trusted source for the fastest and most accurate Satta Matka results.
+Welcome to the official GitHub page for Satta Matka DP Boss – your trusted source for the fastest and most accurate Satta Matka results.
 
 ---
 
@@ -33,9 +33,9 @@ Welcome to the official GitHub page for [Satta Matka DP Boss](https://sattamatka
 
 ### 🔗 Quick Access:
 
-- 👉 Visit → [Satta Matka](https://sattamatkadpboss.co/)
 - 👉 Bookmark us for daily updates!  
 - 👉 Share with Matka Lovers 🎯
+
 
 ---
 
