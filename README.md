@@ -35,9 +35,11 @@ Welcome to the official GitHub page for **Satta Matka DP Boss** – your trusted
 ## 🔗 Quick Access:
 
 👉 Visit Our →- [Kalyan Matka Result](https://sattamatkadpboss.co/)
+
 👉 Bookmark us for daily updates!  
 👉 Share with Matka Lovers 🎯
-- [Matka Result Chart](https://sattamatkadpboss.co/)
+
+Check → [Matka Result Chart](https://sattamatkadpboss.co/)
 ---
 
 ## 📌 Tags:
